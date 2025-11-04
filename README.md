@@ -16,6 +16,8 @@ https://welcome2plagueland.straw.page/
 
 https://en.pronouns.page/@EX-OBLIVIONE
 
+https://listography.com/WELCOME2PLAGUELAND
+
 * I've got really bad memory problems you may have to remind me who you are
 * Very autistic
 * I rarely interact first because I'm shy until spoken to. Please come up and chat with me I promise I'm very sweet !
