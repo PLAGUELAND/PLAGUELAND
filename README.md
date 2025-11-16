@@ -12,7 +12,7 @@ I'm a very big fan of unimportant side characters.
 ## Information
 *Really just information on my pronouns and likes and such. I see no point in listing DNIs I just block freely*
 
-https://welcome2plagueland.straw.page/
+https://listography.com/WELCOME2PLAGUELAND
 
 https://en.pronouns.page/@EX-OBLIVIONE
 
